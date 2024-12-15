@@ -58,5 +58,5 @@ Always expanding my skills and contributing to innovative projects. Check out my
 
 ---
 
-*"Innovation is not about saying yes to everything. It's about saying NO to all but the most crucial features." - Dmytro Nikey* 🚀
+*"Innovation is not about saying yes to everything. It's about saying NO to all but the most crucial features." 🚀
 
